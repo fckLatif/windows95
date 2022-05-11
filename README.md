@@ -1,1 +1,1 @@
-# windows98
+# windows95
